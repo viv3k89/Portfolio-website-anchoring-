@@ -22,6 +22,6 @@ I am a passionate and experienced anchor, dedicated to making every event memora
 🌍 Website: [Your Website Link]  
 
 📌 Follow me on:  
-[🔹 Instagram](#) | [🔹 LinkedIn](#) | [🔹 YouTube](#)  
+[🔹 Instagram](#) | [🔹www.linkedin.com/in/vivek-nath-835261323 | [🔹 YouTube](#)  
 
 🚀 **Thank you for visiting my portfolio! Let’s connect and make your event extraordinary!**  
